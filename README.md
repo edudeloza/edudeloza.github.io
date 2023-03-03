@@ -1,2 +1,0 @@
-# edudeloza.github.io
-Portfolio
